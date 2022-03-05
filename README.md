@@ -1,1 +1,1 @@
-# Activities_3
+# Activities_3My name is Guy Krishen and I am currently a chiropractor looking to change careers into the fintech industry. I hope to change careers completely or ultilize my new knowledge to build a chiropractic practice
